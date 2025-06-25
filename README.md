@@ -42,4 +42,4 @@ I’m deepening my knowledge in LLM-integrated reporting, predictive education a
 Let’s work together on education-focused data projects, business intelligence automation, or analytics dashboard development.
 
 📫 Contact  
-vincent.ronoh@gmail.com 
+vince01rono@gmail.com 
